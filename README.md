@@ -1,1 +1,0 @@
-# qr-id-1KPY63EXC3CY
